@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image-425x425](https://i.pinimg.com/564x/54/8d/09/548d0987548a54066510f24a94c04a91.jpg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤokegom & jjk enjoyer
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤcheck rentry pls!!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤ  ㅤㅤㅤ ⠀ྀིㅤfeel free to intㅤ.ㅤi enjoy conversationsㅤ.ㅤc+h
 
