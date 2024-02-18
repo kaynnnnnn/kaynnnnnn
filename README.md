@@ -2,7 +2,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://caterpie.crd.co/assets/images/gallery28/306d84fe.png?v=55641fe5)ㅤㅤ**~~KAYN~~** ㅤ𓎟 ㅤ***MINOR***ㅤㅤ![](https://caterpie.crd.co/assets/images/gallery28/dc1be573.png?v=55641fe5)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image-425x425](https://i.pinimg.com/564x/54/8d/09/548d0987548a54066510f24a94c04a91.jpg)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image-425x425](https://cdn.discordapp.com/attachments/852693979673395220/1208899656793333800/7c909f5b8115dd0a03a49685eb953dc6.jpg?ex=65e4f68a&is=65d2818a&hm=241b485536b219081916d8c99dc3fe38cfa151f907e8c9989e8e43a81499c2c3&)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤcheck rentry pls!!
 
