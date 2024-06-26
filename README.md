@@ -4,7 +4,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image-425x425](https://i.pinimg.com/564x/8a/f3/81/8af381214720f8b4c40e196053be9f9f.jpg)
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤcheck rentry pls!!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤcheck links pls!!
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤ  ㅤㅤㅤ ⠀ྀིㅤfeel free to intㅤ.ㅤi enjoy conversationsㅤ.ㅤc+h
 
