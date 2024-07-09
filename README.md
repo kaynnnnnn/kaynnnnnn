@@ -6,6 +6,6 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤoften distractedㅤ⟢ㅤcheck links pls!!
 
-ㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ྀིㅤi hate interactingㅤ.ㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤ             ㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀ྀིㅤi hate interactingㅤ.ㅤ
 
 ㅤㅤㅤ![image](https://github.com/imisfood/imisfood/assets/130332213/c968bf1f-6a93-457d-80f8-5d4b54e72810)![image](https://github.com/imisfood/imisfood/assets/130332213/3a71fcdc-bd5d-4a62-915c-81f6a8a7de33)
